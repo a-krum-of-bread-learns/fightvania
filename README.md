@@ -1,3 +1,5 @@
+### reduced work as i'm in school learning to about one work session a week 
+
 forgive my spelling git hub doesnt have auto corect
 i have some video documenton on building this tool on my youtbe you can check out that throgh this google doc or any of my other things https://docs.google.com/document/d/1WaJjE3Oelps1x_ZukbHU-mZNxHV5FyNA_d7BeAHt4Fs/edit?usp=sharing
 
